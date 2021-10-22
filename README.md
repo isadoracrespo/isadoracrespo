@@ -1,0 +1,4 @@
+- 👋 Hi, everyone! I’m @isadoracrespo or just isvdorv.
+- 👀 I’m interested in UX Design, Service Design and Journalism, because I truly believe I can change the world with these tools.
+- 🌱 I’m currently enrolled in a master's degree program at the Federal University of Pernambuco, researching usability, ux design, service design and e-government.
+- 📫 You can reach me at isadora.crespo@ufpe.br. I'd love to talk about projects with you.
